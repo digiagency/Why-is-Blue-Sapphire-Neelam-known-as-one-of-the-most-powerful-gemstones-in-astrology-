@@ -1,0 +1,1 @@
+# Why-is-Blue-Sapphire-Neelam-known-as-one-of-the-most-powerful-gemstones-in-astrology-
